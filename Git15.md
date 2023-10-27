@@ -1,1 +1,1 @@
-All things are difficult before they are easy.
+All things are difficult before they are easy..
